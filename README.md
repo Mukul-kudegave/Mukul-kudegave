@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **mukulkudegave111@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1U1dSo8kKu0h1a3rgoKTVtdwGm6wsBgjx/view](https://drive.google.com/file/d/1U1dSo8kKu0h1a3rgoKTVtdwGm6wsBgjx/view)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1ExSUqpNTbv58kRwYyFyByWteeErfgQEJ/view)
 
 - ⚡ Fun fact **I'm Badminton Player 🏸**
 
